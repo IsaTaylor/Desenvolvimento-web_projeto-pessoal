@@ -1,4 +1,4 @@
-# projeto_pessoal
+# Desenvolvimento web_Projeto Pessoal
 
 Bem-vindos, curiosos digitais! Prepare-se para uma jornada através das maravilhas da web, guiado pelas mãos criativas de Isabela Taylor, uma desenvolvedora web apaixonada pela arte de transformar códigos em experiências incríveis.
 
