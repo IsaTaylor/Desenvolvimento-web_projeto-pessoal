@@ -23,7 +23,7 @@ Dê um mergulho nos meus projetos, clique, navegue, experimente! Cada projeto é
 
 Vamos Criar Juntos?
 Estou sempre em busca de novas colaborações, desafios emocionantes e conversas sobre ambição. Se você está pronto para criar algo extraordinário, entre em contato!
-e-mail: isabela.paganotti@gmai.com
+e-mail: isabela.paganotti@gmail.com
 LinkedIn: https://www.linkedin.com/in/isabela-taylor-paganotti-122b52147/
 
 Obrigada por visitar!
